@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @TEA
+- 👀 I’m interested in vr game
+- 🌱 I’m currently learning the law
+- 📫 How to reach me on discord TEA#5911
